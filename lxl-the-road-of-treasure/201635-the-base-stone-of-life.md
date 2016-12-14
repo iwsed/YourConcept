@@ -15,7 +15,7 @@
 
 那种感觉就像:
 
-![lxl-current-future-01.png](http://www.iwsed.cc/lxl-current-future-01.png)
+![lxl-current-future-01.png](http://qiniu.iwsed.cc/lxl-current-future-01.png)
 
 由于这句流传甚广的“名言”，大部分人从来没思考过如何活在未来，他们可能甚至都不曾相信自己有机会活在未来。
 
@@ -41,7 +41,7 @@
 
 其实哪怕你意识到自己有机会活在未来，并因此对未来做出了一定的预测，都已经开始拓宽了当下的宽度。
 
-![lxl-current-future-02.png](http://www.iwsed.cc/lxl-current-future-02.png)
+![lxl-current-future-02.png](http://qiniu.iwsed.cc/lxl-current-future-02.png)
 
 看到了吗？只要你站在现在的起点，做一点基本的思考，你就已经向未来迈出了一小步。虽然并不遥远，但这已经是质变了，不是吗？
 
@@ -106,7 +106,7 @@
 
 看看那些对朱来有深入思考的人都活在什么样的世界吧。
 
-![lxl-current-future-03.png](http://www.iwsed.cc/lxl-current-future-03.png)
+![lxl-current-future-03.png](http://qiniu.iwsed.cc/lxl-current-future-03.png)
 
 
 随看你思考的深入，所谓的“当下”和“未来怕勺重合将越来越大．这个时候你想要不活在未来估计都不可能， 因为你已经“笃信”自己看到足以改变自己人生轨迹的未来。 
